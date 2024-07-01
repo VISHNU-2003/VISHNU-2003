@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **avishnuvardhan5@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1A-6rJoMn98wiDDaiRwd_tottVTDy5FiZ](https://drive.google.com/drive/folders/1A-6rJoMn98wiDDaiRwd_tottVTDy5FiZ)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1gWxNDjzRv4WFCMHnc4oLS68ecRWC1uun/view?usp=sharing](https://drive.google.com/file/d/1gWxNDjzRv4WFCMHnc4oLS68ecRWC1uun/view?usp=sharing)
 
 - ⚡ Fun fact **Striking your head against the wall, you can lose 150 calories an hour**
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vishnu-2003&label=Profile%20views&color=0e75b6&style=flat" alt="vishnu-2003" /> </p>
